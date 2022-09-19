@@ -1,1 +1,1 @@
-https://CrazyProg-2003.github.io/rsschool-cv/cv
+https://CrazyProg-2003.github.io/rsschool-cv/
